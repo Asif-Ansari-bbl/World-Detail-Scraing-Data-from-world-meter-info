@@ -1,0 +1,1 @@
+# World-Detail-world-meter-info
